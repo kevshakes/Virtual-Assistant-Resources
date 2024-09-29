@@ -1,9 +1,9 @@
 ### Trainings 
 
-https://www.alxafrica.com/programme/virtual-assistant-programme/
+ALX VA Programme - https://www.alxafrica.com/programme/virtual-assistant-programme/
 
-https://alison.com/course/working-as-a-virtual-assistant
+Alison Training - https://alison.com/course/working-as-a-virtual-assistant
 
-https://www.youtube.com/watch?v=NCZo_97MeV4
+VA Aptitude Training - https://www.youtube.com/watch?v=NCZo_97MeV4
 
 Free Virtual Assistant Training by Erin Booth - https://www.youtube.com/playlist?list=PLXZn0LsGhvKrC3_400OctdDkUuTVEZQ4g
